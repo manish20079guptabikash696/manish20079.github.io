@@ -1,2 +1,0 @@
-# BROWSE THIS
-MANISH site
